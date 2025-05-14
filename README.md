@@ -46,7 +46,7 @@ Puedes publicar este sitio en cualquier servicio de hosting de páginas web est�
 
 ## 📞 Contacto
 
-**Mtro. José Alfredo Solís Ramírez**  
+**Mtro. José Alfredo Solis Ramírez**  
 Correo: s_c_consultoria@hotmail.com  
 Marca: *S&C Consultoría Jurídica*
 
